@@ -34,7 +34,7 @@
 
 ###
 
-<img align="left" height="150" src="https://i.gifer.com/Yg6I.gif"  />
+<img align="left" height="125" src="https://i.gifer.com/Yg6I.gif"  />
 
 ###
 
